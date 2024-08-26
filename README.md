@@ -1,0 +1,2 @@
+- 👋 Hi, I’m Alex Posis
+- 📫 abposis@ucdavis.edu
