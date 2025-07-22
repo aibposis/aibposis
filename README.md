@@ -1,2 +1,2 @@
 - 👋 Hi, I’m Alex Posis
-- 📫 abposis@ucdavis.edu
+- 📫 abposis@health.ucdavis.edu
